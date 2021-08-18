@@ -1,1 +1,1 @@
-<meta http-equiv="refresh" content="0;url=https://cafe.naver.com/wangddangkong/246">
+<meta http-equiv="refresh" content="0;url=https://www.leeseungju.com/land_notice/4">
